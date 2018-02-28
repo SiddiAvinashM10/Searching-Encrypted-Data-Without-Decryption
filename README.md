@@ -1,1 +1,1 @@
-# siddim10
+Final Report.pdf has all the information on the project.
